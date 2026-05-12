@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CapCut for macOS extension with elite CapCut for macOS Extension | keyframe-animation + social-media-export. Featuring keyframe-animation and social-media-export,
 
 
 
